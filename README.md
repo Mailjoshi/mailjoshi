@@ -1,11 +1,12 @@
-![profileviews](https://komarev.com/ghpvc/?username=shinobiyaoi&color=yellow&label=evilfujos&style=plastic)
- 
- <p align="center">   𓊈 <a href="https://applejoshi.atabook.org">Atabook!</a> 𓊉  
-<p align="center"> <img width="500" height="550" src="https://files.catbox.moe/onj4of.png" />  
+<div align="center">
+<a href="https://i.pinimg.com/1200x/28/f4/0f/28f40fc0403b44e1b1f57a04984f1e45.jpg"><img src="https://i.pinimg.com/1200x/28/f4/0f/28f40fc0403b44e1b1f57a04984f1e45.jpg" width="350px" align="left"></a>
+  
+
+<br><img src="https://64.media.tumblr.com/24ee30744354bce2c2542a40b0ef889a/14e3a7fe85d75810-20/s250x400/b5255cdac57bf0c75003d8a9ce9c345e58dcf774.pnj" width="99px"><img src="https://64.media.tumblr.com/6dfce674274f92bb0961b297f2936c2a/4a5cea76e0b63f1f-a7/s250x400/a8be66ae8d2d61db530ea27e71975b08a6a1bcac.gif"><img src="https://64.media.tumblr.com/7de4ff30229064dfeee61e2a75ae4977/56a4a6749f00fb6d-ee/s100x200/8ed92a2399dac23288066c2b18c7a327eda72e53.pnj">
 
 
+<img src="https://64.media.tumblr.com/05e3f1d1287d2b7fccf9c418d26e2c90/ed466d3b3ce2836b-dd/s250x400/56762704f0cbfefc9db729d6ab83e19f59ad0b13.gif">
 
-<p align="center"> <img width="100" height="50" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/eb30bc25-5eec-499a-bb0b-590b7354ef70/d1dviq5-de7615d1-0d11-4f41-92ea-dea1738781f9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lYjMwYmMyNS01ZWVjLTQ5OWEtYmIwYi01OTBiNzM1NGVmNzAvZDFkdmlxNS1kZTc2MTVkMS0wZDExLTRmNDEtOTJlYS1kZWExNzM4NzgxZjkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.LDwHUJFPSeEdr3P7V833RxwqbnPIkj4Oyd3h_EEIU7U" /> <img width="100" height="50" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f25432e5-73d9-416d-8b0a-03df5065e2a3/dfczy7j-632d9227-f923-4a36-b815-61ec15238a3b.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9mMjU0MzJlNS03M2Q5LTQxNmQtOGIwYS0wM2RmNTA2NWUyYTMvZGZjenk3ai02MzJkOTIyNy1mOTIzLTRhMzYtYjgxNS02MWVjMTUyMzhhM2IuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.817q_8LxJxwXBvv8kVzDexuIUKhsg_-7sH2c1steghc" /> 
+<a href="https://applejoshi.atabook.org"> sign my ata!
 
 
- 
