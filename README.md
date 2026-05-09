@@ -1,8 +1,8 @@
 <div align="center">
-<img src="https://i.pximg.net/img-master/img/2009/08/15/23/25/21/5659173_p0_master1200.jpg" width="350px" align="left"></a>
+<img src="https://files.catbox.moe/i3tf35.jpeg" width="450px" align="left"></a>
   
 
-<br><img src="https://64.media.tumblr.com/364884d3bec1932f1632758f14460929/b7901f3d4f19061e-ee/s250x400/11ec5fca545d36e6acfdba2f929f5ab70b15b6a2.gif" width="99px"><img src="https://64.media.tumblr.com/9d51e9710d24283290d83c095614f818/b7901f3d4f19061e-4b/s100x200/145f8d76e893ff618962e656f0a40c04befad6cc.gif"><img src="https://64.media.tumblr.com/7de4ff30229064dfeee61e2a75ae4977/56a4a6749f00fb6d-ee/s100x200/8ed92a2399dac23288066c2b18c7a327eda72e53.pnj">
+<br><img src="https://64.media.tumblr.com/3e94eb05913b8a50e7e11fab0af4020e/1b925f9587d95c2b-d1/s100x200/288c7e3f543700141148670bb33aee5a804aaf2e.pnj" width="99px"><img src="https://64.media.tumblr.com/6055498c0d47c7901ea6a221d1f4f936/0654eee44646db89-f4/s250x400/274cf24b6de07c10cf8e08137532684b50a9e76a.pnj"><img src="https://64.media.tumblr.com/7de4ff30229064dfeee61e2a75ae4977/56a4a6749f00fb6d-ee/s100x200/8ed92a2399dac23288066c2b18c7a327eda72e53.pnj">
 <img src="https://64.media.tumblr.com/8373fdb546309769f38f3dbd36e08504/e761e4f8bdb48ad4-00/s100x200/7e93feb57a37d228184ba426decc79bf8503babb.pnj">
 
 
@@ -14,6 +14,6 @@
 <a href="https://applejoshi.atabook.org"> sign my ata!
 
 
-<img src="https://64.media.tumblr.com/6c253751f9309880d1b7f6dc0679447b/470fdf01dfe04a25-59/s75x75_c1/bde5f5893bf4bf0d9a603e9f0e5193eae569eb84.gif">
+<img src="https://64.media.tumblr.com/710ab7416f6fd37a45fc1143808caa1f/c72b23dd48533ddd-bd/s250x400/b829bdfe73d5521d542ffd17bf7456245800a0cc.gif">
 
 
