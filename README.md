@@ -13,8 +13,6 @@
 
 <a href="https://applejoshi.atabook.org"> sign my ata!
 
-@applesjoshi on every social
-
 <img src="https://64.media.tumblr.com/4218b9f713051f99b1316f12e264ec1e/b53acfa85d7b1eff-44/s400x600/33f2276732dc225b22cd7eda49b6453ccd3306e1.gif">
 
 
