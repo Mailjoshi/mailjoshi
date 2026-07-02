@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://files.catbox.moe/jvieof.gif" width="550px" align="left"></a>
+<img src="https://files.catbox.moe/jvieof.gif" width="450px" align="left"></a>
 
 ![joshis](https://komarev.com/ghpvc/?username=mailjoshi&color=yellow&label=heroes!&style=plastic)
   
@@ -14,6 +14,6 @@
 <a href="https://applejoshi.atabook.org"> sign my ata!
 
 
-<img src="https://64.media.tumblr.com/c5c51d61c1b79f3d9c06696299716f40/ce5eb32e8a062676-71/s1280x1920/6ed15e02dc81bd3d92e5c66fc0dbddb6aa40efca.pnj" width="400p" >
+<img src="https://64.media.tumblr.com/c5c51d61c1b79f3d9c06696299716f40/ce5eb32e8a062676-71/s1280x1920/6ed15e02dc81bd3d92e5c66fc0dbddb6aa40efca.pnj" width="300p" >
 
 
