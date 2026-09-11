@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://files.catbox.moe/jvieof.gif" width="450px" align="left"></a>
+<img src="http://hetarchive.net/scanlations/mainstory/7-hetare5/lie31.gif" width="450px" align="left"></a>
 
 ![joshis](https://komarev.com/ghpvc/?username=mailjoshi&color=yellow&label=heroes!&style=plastic)
   
