@@ -12,6 +12,3 @@
 <a href="https://applejoshi.atabook.org"> ヽ(￣ω￣(。。 )sign my ata!
 
 
-<img src="https://64.media.tumblr.com/58a6030a9dcc31a31e134d1fd8746684/ca20d4b354753bd4-75/s2048x3072/3a4383f5df0ecd0de2b6b64dcce579b32b71095d.pnj" width="350p" >
-
-
