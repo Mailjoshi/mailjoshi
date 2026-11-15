@@ -4,10 +4,10 @@
 ![joshis](https://komarev.com/ghpvc/?username=mailjoshi&color=yellow&label=heroes!&style=plastic)
   
 
-<br><img src="https://64.media.tumblr.com/328a5dbcd7434d96291546ec92cf40be/2383a6ea20118e43-0d/s250x400/646b4ad7233617d0899e6f86042a79ffe52d1746.gif" width="108px" >
-<img src="https://64.media.tumblr.com/108d3203f73f6b7a037ef73bf42ff667/f35f559a757592c7-a4/s250x400/89041cc1200df2f8e6e689f6a85127cce2511810.pnj" width="100px" >
+<br><img src="https://64.media.tumblr.com/e9bec28557565d011fbeb52d4a749e17/b4963413b3d05ae7-9f/s100x200/e85cd5b4a6fa38f9f20de1d99c00e614eb1f6eaa.pnj" width="108px" >
+<img src="https://64.media.tumblr.com/0d714ded101d40da5ab9ba5c3564fd21/903dc5864f648506-e2/s100x200/ff0befd4e5895b68d70a39ec061b28e5c214dd1f.pnj" width="100px" >
 
-<img src="https://64.media.tumblr.com/f6364fb2da717475b4916c9e2b2b8ac6/0cf7d0e14ff711a5-57/s250x400/bc9afc8fa07985de8fb94ad863901459697d59ba.gif" width="300px" >
+<img src="https://64.media.tumblr.com/aae510c798847a00b6b345b9bbaca505/17e56c69ffb64f87-13/s2048x3072/709eb67adc2150a01f7da0af6e0f30e5de580d92.pnj" width="300px" >
 
 <a href="https://applejoshi.atabook.org"> ヽ(￣ω￣(。。 )sign my ata!
 
